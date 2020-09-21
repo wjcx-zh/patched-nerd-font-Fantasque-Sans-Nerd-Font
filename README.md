@@ -1,0 +1,1 @@
+# patched-nerd-font-Fantasque-Sans-Nerd-Font
